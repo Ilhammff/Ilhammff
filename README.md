@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ilhammff
-- 👀 I’m interested in PLC
+- 👀 I’m interested in gaming
 - 🌱 I’m currently learning designing websites
 - 📫 How to reach me: you can email me at ifirmansyah048@gmail.com
 - ⚡ Fun fact: bola sepak tidak sepenuhnya bulat
